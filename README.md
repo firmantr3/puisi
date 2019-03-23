@@ -6,6 +6,8 @@ Looks beautiful with sparkling
 
 Fall doesn't know where
 
-Di sini di mana semua orang bertaruh nyawa 
+Di sini di mana semua orang bertaruh nyawa
 
 untuk melihat indahnya ciptaan sang maha kuasa
+
+nah ini dia
