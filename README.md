@@ -11,3 +11,5 @@ Di sini di mana semua orang bertaruh nyawa
 untuk melihat indahnya ciptaan sang maha kuasa
 
 nah ini dia
+
+by : Firman Taruna Nugraha
