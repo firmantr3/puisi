@@ -9,3 +9,5 @@ Fall doesn't know where
 Di sini di mana semua orang bertaruh nyawa 
 
 untuk melihat indahnya ciptaan sang maha kuasa
+
+by : Firman Taruna Nugraha
